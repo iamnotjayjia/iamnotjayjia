@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @iamnotjayjia
+- 👀 I’m interested in travelling
+- 🌱 I’m currently learning computer science
+- 💞️ I’m looking to collaborate on any start up project
+- 📫 How to reach me :iamnotjay1@gmail.com
+- 😄 Pronouns: He/His/Him
